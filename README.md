@@ -6,7 +6,6 @@
 - ODEIO PAULO
 - TIGINHO 777
 - COMO SO AS JOB🔞
-- ODEIO A TAISA
 - Tony Country
 - TROPA DO SET ♌🔞
 - @japones.045
