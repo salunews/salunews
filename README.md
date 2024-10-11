@@ -10,3 +10,5 @@
 - Tony Country
 - TROPA DO SET ♌🔞
 - @japones.045
+
+![](https://media.tenor.com/8JADcnp-LkcAAAAi/joker.gif)
